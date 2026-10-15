@@ -1,13 +1,7 @@
+# Satetapong Sanguansuk (นายเศรษฐพงศ์ สงวนสุข)
 
-##satetapong sanguansuk
+**Education:** Computer Engineering ที่มหาวิทยาลัยศรีปทุม (SPU - Sripatum University)
 
-
-
-Computer Engineering ที่ มหาวิทยาลัยศรีปทุม SPU Sripatum
-
-
-
-
-satetapong-sanguansuk badges credly
-- me : https://lnkd.in/grc63wnZ
-satetapong sanguansuk has shared their transcript with you via Credly
+## Credentials & Badges
+* **LinkedIn:** [satetapong-sanguansuk](https://lnkd.in/grc63wnZ)
+* **Credly Transcript & Badges:** ได้แชร์ทรานสคริปต์และป้ายรางวัลผ่านระบบ Credly
